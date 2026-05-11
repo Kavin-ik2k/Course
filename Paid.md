@@ -52,5 +52,5 @@
 
 **22.𝗲𝗝𝗣𝗧 (Junior Penetration Tester) Official Training -** https://drive.google.com/drive/folders/1maWWbeyvnMgfT\_qYbPaE0fC4MMzNkX9T
 
-**23.**
+
 
