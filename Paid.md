@@ -60,5 +60,5 @@
 
 **26.Hacking Course By RedEyes -** https://mega.nz/file/6FknALRK#-tNrpuZtHj5JsRma49Skddi7M5Kw1\_2o4QUBbGcwPsw
 
-**27.DS -** https://drive.google.com/drive/folders/1CgN7DE3pNRNh\_4BA\_zrrMLqWz6KquwuD
+**27.DS -** https://drive.google.com/drive/folders/1CgN7DE3pNRNh_4BA_zrrMLqWz6KquwuD
 
